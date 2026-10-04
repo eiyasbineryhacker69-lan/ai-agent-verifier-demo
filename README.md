@@ -117,7 +117,7 @@ Designed for modern AI governance programs, the platform supports controlled rol
 Eiyas  
 Lead AI Security & Systems Architect
 
-- Email: contact@ai-agent-verifier.com
+- Email: engr.eiyas.ai@gmail.com
 - LinkedIn / Direct Outreach: Available upon formal engagement request
 - Engagement Model: Strategic partnership, licensing, or pilot evaluation
 
